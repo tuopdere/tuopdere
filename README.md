@@ -1,0 +1,1 @@
+I'm Glxckvip, I enjoy creating software for FiveM, developing scripts and mods to enhance the gaming experience. I also engage in screensharing to collaborate with other developers and solve problems together.
